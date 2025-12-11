@@ -1,2 +1,1 @@
-i code in python and thats it
-
+i like programming and money
